@@ -1,2 +1,2 @@
-# p-evodn-k-mezizubn-ch-kart-k-
+# prevodnik-mezizubnich-kartacku
 Převod velikostí různých značek mezizubních kartáčků
